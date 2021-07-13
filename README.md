@@ -1,0 +1,2 @@
+# GENETIKA3
+HEY
